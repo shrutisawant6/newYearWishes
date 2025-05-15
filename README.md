@@ -1,6 +1,6 @@
 # New year wishes
 
-Sick of recycling the same New Year GIFs and videos?
+Sick of recycling the same New Year GIFs and videos? 
 
 Peep at these custom-made!
 
